@@ -17,7 +17,7 @@ Here are some of my featured projects:
 
 ## 📫 Contact Me
 - ✉️ Email: osmangumus024@gmail.com 
-- 💼 LinkedIn: [linkedin.com/in/osmg](www.linkedin.com/in/osman-gümüş-478b28224) 
+- 💼 LinkedIn: [www.linkedin.com/in/osman-gümüş-478b28224](www.linkedin.com/in/osman-gümüş-478b28224) 
 
 ---
 
